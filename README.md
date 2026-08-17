@@ -60,7 +60,7 @@ Kizuna-Backup PRO (500 JPY) includes the following advanced features:
   - Installation manual
   - Email support (1 year)
 
-  For details and purchase: https://example.com/kizuna-backup-pro
+  For details and purchase: (https://exiserverteam.booth.pm/items/8724798)
 
 7. License
 
